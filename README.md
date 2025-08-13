@@ -19,8 +19,8 @@ Aqui você vai encontrar meus projetos de estudo, anotações e aprendizados ao 
 
 ### 🌐 Vamos nos conectar?
 
-[![LinkedIn](https://www.linkedin.com/in/d%C3%A9bora-cristina-69164237a/)
-[![GitHub](https://lnkd.in/eJxgKzgy)
+[![LinkedIn] (https://www.linkedin.com/in/d%C3%A9bora-cristina-69164237a/)
+[![GitHub] (https://lnkd.in/eJxgKzgy)
 
 ---
 
